@@ -1,4 +1,4 @@
-# Iglesia Vida Abundante - Política de privacidad
+# Iglesia Vida Abundante - Política de Privacidad
 
 Política de privacidad
 Fecha efectiva: May 06, 2019
